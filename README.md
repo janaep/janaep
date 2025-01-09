@@ -1,5 +1,5 @@
 ## Hi there 👋
-[![IMG_9468](https://github.com/user-attachments/assets/401f836b-404b-4e35-aa54-e07abf8c09f1)]
+![IMG_9468](https://github.com/user-attachments/assets/401f836b-404b-4e35-aa54-e07abf8c09f1)
 
 Linkedin Profile: https://www.linkedin.com/in/janaeperez/
 
